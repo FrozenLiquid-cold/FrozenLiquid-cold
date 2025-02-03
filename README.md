@@ -2,7 +2,7 @@
 - 👀 I’m interested in a Part time Job/ Intern
 - 🌱 I’m currently learning a lot
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me email
+- 📫 How to reach me @email: patpatin2184@gmail.com
 - 😄 Pronouns: Him/He
 - ⚡ Fun fact: Handsome af
 
